@@ -1,4 +1,4 @@
-# Info1111skill-new-
+# Skill group member 
 
 CZTheShy name(HAO, CHANGYI) student ID(530162441)
 
